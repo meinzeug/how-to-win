@@ -172,4 +172,7 @@ MIT License - Because great prompts should be shared freely.
 
 *You have to learn prompt design! The game is about iteration, enhancement, and never stopping the pursuit of the perfect prompt. Love the process, embrace the failures, and keep pushing the boundaries of what's possible.*
 
+PS I am a MOTHERFUCKING TEKKNOHEAD!!!!!!
+https://www.youtube.com/watch?v=UyToEctNdMU
+
 *That's the game, baby! 😘*
